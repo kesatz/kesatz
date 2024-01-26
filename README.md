@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kesatz
+- 👀 I’m interested in many things
+- 📫 How to reach me: with long arms
+- 😄 Pronouns: she/her
